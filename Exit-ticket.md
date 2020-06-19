@@ -30,6 +30,6 @@ Another essential thing I learned from digital history is teamwork.The discord p
 In conclusion, I really enjoying taking this class, and it is definitely the most interesting and special class I have ever take.
 Things I have learned from this class would actually help me in my future study and career. This class also inspired me to explore history and digital world.
 And every mistakes I made helped me to gain experiences and do better next time.  
-I will rate myself a B.
+I will evaluate myself a B.
 
 Thank you Dr. Graham for the great term. If someone asked me what's the most interesting class you have ever take during your undergraduate year. I will say crafting digital history.
